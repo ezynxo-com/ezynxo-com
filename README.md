@@ -11,4 +11,4 @@ Links
 
 ## [LinkedIn](https://linkedin.com/company/ezynxo-com)
 
-## [Instagram](https://instagram.com/ezynxo)
+## [Instagram](https://instagram.com/ezynxo_com)
